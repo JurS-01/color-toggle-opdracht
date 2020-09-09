@@ -1,4 +1,4 @@
-# 5 Minute Dahl for Weight loss
+# 5 Minute Dahl for super healthy Weight loss
 
 ## INGREDIENTS
 - 3 cloves of garlic
